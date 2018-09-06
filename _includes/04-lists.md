@@ -1,4 +1,4 @@
-# Hitting
-# The 
-# Chug
-# Jug
+- Hitting
+- The 
+- Chug
+- Jug
