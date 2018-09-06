@@ -1,3 +1,3 @@
-# SUper Attractive
-# Athletically Athletic
-# Manly MAn
+# **SUper Attractive**
+# **Athletically Athletic**
+# **Manly MAn**
